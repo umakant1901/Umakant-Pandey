@@ -6,7 +6,7 @@
 
 :chart_with_upwards_trend: I like to learn new things :smile:.
 
-:computer: India as a Software tester. I have 4+ Yrs of experience.
+:computer: I have 4Yrs 4 Months experience in Software Testing profile.
 
 :telephone_receiver: You can call me at +91-8527801068.
 
