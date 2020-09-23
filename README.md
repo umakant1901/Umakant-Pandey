@@ -1,6 +1,6 @@
 
 
-:pray: Welcome Dear...! Here, You can know about me...!
+:pray: Welcome...! Here, You can know about me...!
 
 :office: I am working in Infosys Ltd, Bengaluru.India as a Software tester.
 
